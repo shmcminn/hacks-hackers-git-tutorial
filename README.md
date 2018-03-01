@@ -1,2 +1,2 @@
 # shmcminn.github.io
-My Hacks/Hackers DC personal website
+Learning github is so much funnnnnn
